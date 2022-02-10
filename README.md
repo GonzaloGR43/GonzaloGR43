@@ -8,6 +8,9 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 Megusta jugar, oro en lol 
+
+![](https://c.tenor.com/bCfpwMjfAi0AAAAM/cat-typing.gif)
+
 |              	| L         	| M         	| M         	| J         	| V         	|
 |--------------	|-----------	|-----------	|-----------	|-----------	|-----------	|
 | Tall.BD.     	| 2:00-3:00 	| 2:00-3:00 	| 2:00-3:00 	| 2:00-3:00 	| 2:00-3:00 	|
@@ -20,7 +23,7 @@
 - Canal de Youtube:
 https://www.youtube.com/channel/UCQGJuTK-ugu4M2W4jxOyxTA
 
-![](https://c.tenor.com/bCfpwMjfAi0AAAAM/cat-typing.gif)
+
 
 
 
