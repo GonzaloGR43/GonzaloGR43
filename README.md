@@ -20,7 +20,7 @@
 - Canal de Youtube:
 https://www.youtube.com/channel/UCQGJuTK-ugu4M2W4jxOyxTA
 
-![](https://giphy.com/embed/NdPuK7lYabsaG6JhBI)
+![](https://c.tenor.com/bCfpwMjfAi0AAAAM/cat-typing.gif)
 
 
 
