@@ -20,6 +20,7 @@
 - Canal de Youtube:
 https://www.youtube.com/channel/UCQGJuTK-ugu4M2W4jxOyxTA
 
+![](https://giphy.com/embed/NdPuK7lYabsaG6JhBI)
 
 
-<iframe src="https://giphy.com/embed/NdPuK7lYabsaG6JhBI" width="480" height="270" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/tvgrypl-working-hacker-praca-NdPuK7lYabsaG6JhBI">via GIPHY</a></p>
+
