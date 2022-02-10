@@ -9,4 +9,4 @@
 - 💬 Ask me about ...
 - 📫 Megusta jugar, oro en lol 
 - ⚡ 1.80 bien parecido
-![](https://images.cooltext.com/5508510.png)
+![](https://www.google.com/a/cpanel/tectijuana.edu.mx/images/logo.gif)
